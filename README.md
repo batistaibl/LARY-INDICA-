@@ -1,1 +1,0 @@
-# LARY-INDICA-
